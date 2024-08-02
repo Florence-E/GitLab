@@ -1,1 +1,1 @@
-I am Florence and I enjoy what I do
+I am Florence and I enjoy and love what I do
